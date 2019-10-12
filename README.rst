@@ -41,7 +41,7 @@ License
 
 The project is licensed under the BSD license.
 
-- https://karinov.co.id - jasa digital marketing indonesia
+- https://cradlespace.co.id - Coworking Space Medan
 - `Review Speaker dan Sound System Terbaik <https://www.fedora.or.id>`_
 - `Portal Pemerintahan dan Pendidikan <https://id.karinov.co.id>`_
 - `Informasi Pendidikan Indonesia <https://www.evaluasi.or.id>`_
