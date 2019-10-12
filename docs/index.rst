@@ -53,7 +53,7 @@ Nama Ibrahim Vatih mungkin terasa tidak asing lagi terdengar. Namanya sudah aral
 
 Kecakapannya dalam SEO ini berhubungan dengan minat dan ketertarikannya yang sudah dimiliki sejak lama. Ibrahim Vatih mengaku bahwa ia menyukai bidang pemrograman hingga online marketing. Kesukaannya ini pun merambah ke hal lainnya dengan memperdalam website, ads, dan lingkup sejenisnya. Semua hal tersebut pun mengerucut dengan pendalaman SEO.
 
-Dengan menyukai `hal berbau SEO <https://karinov.co.id/cara-seo-youtube/>`_ membuatnya menjadi lebih mudah memahaminya. Penerapan SEO yang digunakannya bisa Anda lihat di dalam websitenya yaitu vatih.com. Disana Anda akan menemukan berbagai macam artikel yang ditulis untuk dibaca oleh jutaan pengguna daring.
+Dengan menyukai `hal berbau SEO <https://cradlespace.co.id/plans/coworking-space/>`_ membuatnya menjadi lebih mudah memahaminya. Penerapan SEO yang digunakannya bisa Anda lihat di dalam websitenya yaitu vatih.com. Disana Anda akan menemukan berbagai macam artikel yang ditulis untuk dibaca oleh jutaan pengguna daring.
 
 Jika mengunjungi beranda websitenya dan mengklik salah satu artikel, maka selanjutnya Anda akan digiring pada halaman vatih.com/bisnis/. Revorma, begitulah nama untuk lanjutan dari halaman utama tadi.
 
@@ -61,7 +61,7 @@ Bagian Revorma ini merupakan sebuah kolom yang dikhususkan untuk mempelajari bis
 
 Artikel yang ditulis, khususnya tentang SEO, cukup mudah dicerna. Bahasanya lugas dan sederhana serta bisa dipahami oleh berbagai usia yang ingin belajar SEO.
 
-Ada segudang artikel yang Anda butuhkan untuk bahan belajar. Artikel di kategori ini digolongkan lagi dalam menu wordpress, SEO, `marketing <https://karinov.co.id/digital-marketing-optimal-di-2019/>`_, dan adsense. Anda juga bisa langsung mencarinya sesuai dengan kata kunci yang diinginkan pada kolom pencarian.
+Ada segudang artikel yang Anda butuhkan untuk bahan belajar. Artikel di kategori ini digolongkan lagi dalam menu wordpress, SEO, `marketing <https://cradlespace.co.id/plans/coworking-space/>`_, dan adsense. Anda juga bisa langsung mencarinya sesuai dengan kata kunci yang diinginkan pada kolom pencarian.
 
 Bagi yang ingin mendapatkan bahan berkonten premium, tim akan membuatkan akun secara khusus. Akun ini nantinya akan digunakan pada saat ingin login untuk membaca materi yang sudah terkunci.
 
