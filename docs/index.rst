@@ -3,7 +3,7 @@
    You can adapt this file completely to your liking, but it should at least
    contain the root `toctree` directive.
 
-Repository Digital Marketing Indonesia | by Karinov.co.id
+Repository Digital Marketing Indonesia | by cradlespace.co.id
 ==================================================
 
 Contents:
