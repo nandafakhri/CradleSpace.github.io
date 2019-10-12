@@ -4,7 +4,7 @@ Authors
 * Eric (New contributor)
 * Anthony 
 
-- https://karinov.co.id - jasa digital marketing indonesia
+- https://cradlespace.co.id - Coworking Space medan
 - https://www.navi.id - forum modifikasi otomotif indonesia
 - https://blogs.itb.ac.id/feeds - kumpulan tautan berita terbaru indonesia
 - https://www.fedora.or.id - portal speaker dan audio
